@@ -217,4 +217,4 @@ JogoBox is offered as a full free version with all features and updates included
 Don't miss out on the chance to enjoy hundreds of classic games. Download JogoBox free today and start your gaming adventure!
 
 ---
-**Last updated:** 2026-10-04 09:19:09 UTC
+**Last updated:** 2026-10-04 15:07:50 UTC
